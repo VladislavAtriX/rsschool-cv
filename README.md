@@ -1,1 +1,1 @@
-# rsschool-cv
+https://VladislavAtriX.github.io/rsschool-cv/
